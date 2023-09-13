@@ -9,3 +9,4 @@ HAHAHAHAHAHAHAHHAHAHAHAHAHAHAHAHAHAHAHAHHAHAHAHAHAHAHAHAHAHAHA
 - CV (red comand) chief of market operations
 - Bangu I marketing performace
 - Made pizza in alemanha in 1945 but was queimei all of pizzas
+- AUCAIDA (Al-Qaeda best plane & caça & helicoper & drone & Millennium Falcon & Avengers nave diver
